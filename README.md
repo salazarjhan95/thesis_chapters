@@ -11,3 +11,6 @@ This one is under review right now in the Journal of Global Ecology and Biogeogr
 
 ## Chapter 4: 
 The Shape of Water: Physiological Adaptations to Habitat Aridity in the Ornate Tree Lizard (Urosaurus ornatus) - Available online since 2024. Published of the Journal of Integrative and Comparative Biology - https://doi.org/10.1093/icb/icae061
+
+## Picture: 
+If you want to see some cool pictures of anoles and other interesting stuff, check out: - https://www.flickr.com/photos/jhansalazar
